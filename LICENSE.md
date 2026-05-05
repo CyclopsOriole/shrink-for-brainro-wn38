@@ -1,4 +1,4 @@
-
+shrink for brainrots Script secure is the best shrink for brainrots Script, featuring auto-sell and god mode. Safe and powerful for all your needs.
 
 
 
